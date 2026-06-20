@@ -1,1 +1,2 @@
-# kismatthapamagr1
+Hi there...
+I'm Kismat,Computer Engineering student at Kathmandu University,Dhulikel Kavre.
